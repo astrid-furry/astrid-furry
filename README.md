@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @astrid-furry
+- 👀 I’m interested in all things cute and fluffy
+- 📫 You can find all my contact info at https://furry.ong
+- 😄 Pronouns: she/her/hers
